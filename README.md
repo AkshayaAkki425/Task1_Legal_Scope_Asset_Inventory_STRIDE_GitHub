@@ -1,0 +1,1 @@
+# Task1_Legal_Scope_Asset_Inventory_STRIDE_GitHub
